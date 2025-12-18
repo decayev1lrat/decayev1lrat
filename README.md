@@ -15,4 +15,17 @@ $\color{#FFFFFF}{\text{17 yo}}$
 
 $\color{#FFFFFF}{\text{I love my bf ♡}}$
 
+
+$\color{#FF0000}{\text{━━─ ──────── ─━━}}$
+
+$\color{#FF0000}{\text{owari no seraph . okegom}}$
+
+$\color{#FF0000}{\text{bsd . black butler . chainsaw man}}$
+
+
+$\color{#FF0000}{\text{Dangaronpa . forsaken . Cookie run . etc}}$
+
+$\color{#FF0000}{\text{━━─ ──────── ─━━}}$
+
+
 <img width="736" height="736" alt="15 sin título_20251216235609" src="https://github.com/user-attachments/assets/f88adfa1-6fe4-4f56-9b55-b3880dbc9dff" />
