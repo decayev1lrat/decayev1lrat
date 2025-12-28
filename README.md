@@ -31,7 +31,10 @@ $\color{#FF0000}{\text{owari no seraph . okegom}}$
 $\color{#FF0000}{\text{bsd . black butler . chainsaw man}}$
 
 <p align="center">
-$\color{#FF0000}{\text{Dangaronpa . forsaken . Cookie run . Gravity falls}}$
+$\color{#FF0000}{\text{Dangaronpa . forsaken . Cookie run}}$
+  
+<p align="center">
+$\color{#FF0000}{\text{gravity falls . vanitas no carte}}$
   
 <p align="center">
 $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
