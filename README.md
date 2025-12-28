@@ -19,7 +19,7 @@ $\color{#FFFFFF}{\text{C+h . afk}}$
 $\color{#FFFFFF}{\text{17 yo}}$
   
 <p align="center">
-$\color{#FFFFFF}{\text{I love my bf ♡}}$
+$\color{#FFFFFF}{\text{W2i}}$
 
 <p align="center">
 $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
@@ -31,7 +31,7 @@ $\color{#FF0000}{\text{owari no seraph . okegom}}$
 $\color{#FF0000}{\text{bsd . black butler . chainsaw man}}$
 
 <p align="center">
-$\color{#FF0000}{\text{Dangaronpa . forsaken . Cookie run . etc}}$
+$\color{#FF0000}{\text{Dangaronpa . forsaken . Cookie run . Gravity falls}}$
   
 <p align="center">
 $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
