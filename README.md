@@ -1,6 +1,7 @@
 <p align="center">
   
-![a8d5b1ce5603ef74ec19d53c999a8a32_1](https://github.com/user-attachments/assets/da2c5dfa-c96d-4406-8971-2384c97ef0e6)
+<img width="736" height="377" alt="38 sin título_20260105162157" src="https://github.com/user-attachments/assets/f9f06005-6a55-4c8e-a3d3-13516175b622" />
+
 
 
 <p align="center">
@@ -45,3 +46,11 @@ $\color{#FF0000}{\text{gravity falls . vanitas no carte}}$
   
 <p align="center">
 $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+
+<p align="center">
+  
+![IMG-20260105-WA0024](https://github.com/user-attachments/assets/7df0d19a-2312-4449-8ec0-223008694c22)
+
+<p align="center">
+  
+![IMG-20260105-WA0025](https://github.com/user-attachments/assets/6754ff59-8ea7-4ede-a62a-7766e768e84c)
