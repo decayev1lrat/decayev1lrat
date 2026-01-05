@@ -2,6 +2,14 @@
   
 ![a8d5b1ce5603ef74ec19d53c999a8a32_1](https://github.com/user-attachments/assets/da2c5dfa-c96d-4406-8971-2384c97ef0e6)
 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312cdsba7bxcygwa2h33negvvziu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ffffff">
+  </a>
+</p>
+
+
 <p align="center">
 $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
