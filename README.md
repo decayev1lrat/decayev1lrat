@@ -5,10 +5,9 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312cdsba7bxcygwa2h33negvvziu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ffffff">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312cdsba7bxcygwa2h33negvvziu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
-
 
 <p align="center">
 $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
