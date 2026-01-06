@@ -49,8 +49,13 @@ $\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
 
 <p align="center">
   
-![IMG-20260105-WA0024](https://github.com/user-attachments/assets/7df0d19a-2312-4449-8ec0-223008694c22)
+![17676606131838761919477011691648](https://github.com/user-attachments/assets/a07994e5-2651-46d6-8de4-d2d7fe381c18)
+
+
+<p align="center">
+
+![17676606572372957942462173077514](https://github.com/user-attachments/assets/fcf7acac-c653-471f-b1d0-04430467ff31)
 
 <p align="center">
   
-![IMG-20260105-WA0025](https://github.com/user-attachments/assets/6754ff59-8ea7-4ede-a62a-7766e768e84c)
+![17676608261265607706124941512116](https://github.com/user-attachments/assets/efd4b881-98bc-40c9-9e5e-f42a963dbc8d)
