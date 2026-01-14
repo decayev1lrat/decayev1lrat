@@ -11,16 +11,18 @@
 </p>
 
 <p align="center">
-$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
-$\color{#FF0000}{\text{Intp 5w4 . He/they}}$
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/283adb38-c771-4e48-b669-a5281b6bba0a" />
+$\color{#FFFFFF}{\text{Intp 5w4 . He/they}}$
+
+<p align="center">
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/964ba0eb-e54c-4a18-b4fd-66062b8046ab" />
+$\color{#FFFFFF}{\text{Mikaela/fyodor kinnie.}}$
   
 <p align="center">
-$\color{#FF0000}{\text{Mikaela/fyodor kinnie.}}$
-  
-<p align="center">
-$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
 $\color{#FFFFFF}{\text{C+h . afk}}$
@@ -30,32 +32,21 @@ $\color{#FFFFFF}{\text{17 yo}}$
 $\color{#FFFFFF}{\text{W2i}}$
 
 <p align="center">
-$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
   
 <p align="center">
-$\color{#FF0000}{\text{owari no seraph . okegom}}$
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fae9f169-62e0-4d7f-be34-bcdc782dedfe" />
+$\color{#FFFFFF}{\text{owari no seraph . okegom}}$
   
 <p align="center">
-$\color{#FF0000}{\text{bsd . black butler . chainsaw man}}$
+$\color{#FFFFFF}{\text{bsd . black butler . chainsaw man}}$
 
 <p align="center">
-$\color{#FF0000}{\text{Dangaronpa . forsaken . Cookie run}}$
+$\color{#FFFFFF}{\text{Dangaronpa . forsaken . Cookie run}}$
   
 <p align="center">
-$\color{#FF0000}{\text{gravity falls . vanitas no carte}}$
+$\color{#FFFFFF}{\text{gravity falls . vanitas no carte}}$
   
 <p align="center">
-$\color{#FF0000}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
+$\color{#382555}{\text{⏝︶⏝︶⏝︶⏝︶⏝︶⏝}}$
 
-<p align="center">
-  
-![17676606131838761919477011691648](https://github.com/user-attachments/assets/a07994e5-2651-46d6-8de4-d2d7fe381c18)
-
-
-<p align="center">
-
-![17676606572372957942462173077514](https://github.com/user-attachments/assets/fcf7acac-c653-471f-b1d0-04430467ff31)
-
-<p align="center">
-  
-![17676608261265607706124941512116](https://github.com/user-attachments/assets/efd4b881-98bc-40c9-9e5e-f42a963dbc8d)
